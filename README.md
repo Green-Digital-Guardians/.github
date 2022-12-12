@@ -5,7 +5,7 @@ Our purpose is to create the Largest Community on Planet Earth «Digital Guardia
 
 Here are some ideas to get you started:
 
-- 
+
 - 🔭 I’m currently working on Green Digitaal Guardians
 - 🌱 I’m currently learning Solidity, UI/UX, GitHub...
 - 👯 I’m looking to collaborate on Sustainable or ReFi Proyects 
