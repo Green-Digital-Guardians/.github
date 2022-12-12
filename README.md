@@ -1,6 +1,6 @@
 ### Hi there 👋
+Contract Addres en Celo Testnet: https://explorer.celo.org/alfajores/address/0x48b7cC955cF2682185480E1a68035B33d00c71E8
 
-<!--
 **dgguardians/DGGuardians** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
