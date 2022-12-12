@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Green Digital Guardians
 Our purpose is to create the Largest Community on Planet Earth «Digital Guardians of The Green Arks» through new NFT technologies.
-Proyect description https://github.com/dgguardians/DGGuardians/blob/main/Proyect%20Description.md
+Proyect description [here](https://github.com/dgguardians/DGGuardians/blob/main/Proyect%20Description.md)
 
 
 Here are some ideas to get you started:
