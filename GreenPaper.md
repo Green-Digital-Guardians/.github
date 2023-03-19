@@ -1,4 +1,3 @@
-
 # GREEN DIGITAL GUARDIANS OF THE GREEN ARKS OF PLANET - DGGUARDIANS
 
 
@@ -26,7 +25,7 @@
 
 
  
-## 1.	Gratitude Message.
+## 1.	Gratitude Message
 We want to give thanks to life, thanks for this new day, thanks to the source or energy *"God"*, but especially we want to give thanks to nature, thanks to the forests, thanks to the mountains, thanks to the trees, thanks to the air, thanks to the water, thanks to the seas, thanks to the animals, thanks to the flowers, a thousand and a thousand thanks for so much magnificence and love that they give us towards us *"Humans”*.
 
 ## 2.	¿What are the Green Arks of the Planet?
@@ -47,7 +46,7 @@ In conclusion, the ***“GREEN ARKS”*** are true treasures of humanity that we
 
 In the very near future those ***“GREEN ARKS”*** will serve as ***“Shelters for Life”*** <sub>even the human?</sub> They will be Green Lands for contemplation, for the enjoyment and use of all ***"DGGUARDIANS”*** becoming the first Decentralized Model of Environmental Protection, Solidarity, Visionary, Protectionist, and Democratic; model that will be referenced throughout Planet Earth.
 
-## 3.	Destruction of the Green Arks of the Planet. 
+## 3.	Destruction of the Green Arks of the Planet
 
 For several decades, we have been hearing how Planet Earth and the environment have been destroyed by human beings, either directly or indirectly. We are all responsible and contribute to the destruction of the Planet.
 
@@ -65,7 +64,7 @@ All this destruction is generating the increase or decrease in the global temper
 
 The time has come to act, and we become ***GREEN DIGITAL GUARDIAN OF THE GREEN ARKS OF THE PLANET***. Que chimba la ***"PACHA MAMA"***.
 
-## 4.	Ineffectiveness of the States in the Protection and Care of the Green Arks of the Planet.
+## 4.	Ineffectiveness of the States in the Protection and Care of the Green Arks of the Planet
 
 Today, the States and their rulers in the world already have all the legal tools *(organizations, agencies, regulations, resolutions, commissions, codes, laws, etc.)* to exercise true environmental protection of the natural resources of planet earth.
 
@@ -75,7 +74,7 @@ Millions of Territories and Green Lands are being razed and destroyed with the c
 
 Faced with the lack of courage and courage of the States to fight for Planet Earth, faced with the accelerated and planned destruction of all natural resources, we constitute the ***“GREEN DIGITAL GUARDIANS OF THE GREEN ARKS OF PLANET EARTH”***.
 
-## 5.	The Protection of the Green Arks is a Commitment of All. It's now or never.
+## 5.	The Protection of the Green Arks is a Commitment of All. It's now or never
 
 We always thought that the protection and defense of Planet Earth was solely and exclusively of the State and its Governors, what a great mistake. We have understood and heeded that the call to defend Planet Earth corresponds to all human beings, *"awakened or not awakened"* this is a matter of survival of the human race, it is a love story that does not want to end in ruins, it is just telling a story and the birth of a Peaceful and Organized community of Human Beings who were able to save Millions of Green Arks of Planet Earth from almost guaranteed destruction.
 
@@ -89,7 +88,7 @@ The **DGGUARDIANS** will protect shelters for life *(humanity)*, we want to prev
 
 The **GREEN ARKS** will become places of connection between the human being and the land, *“going back to the origin”*, protecting these rural lands for healthy spiritual spaces. 
 
-## 6.	Our purpose is to create the Largest Community on Planet Earth "Digital Guardians of The Green Arks" through new NFT technologies.
+## 6.	Our purpose is to create the Largest Community on Planet Earth "Digital Guardians of The Green Arks" through new NFT technologies
 
 Our purpose is to create the community of ***GREEN DIGITAL GUARDIANS OF THE GREEN ARKS OF PLANET EARTH***, where new technologies such as Blockchain and NTFs will allow laying the foundations for a decentralized model of environmental protection, supportive, visionary, and democratic.
 
@@ -109,11 +108,11 @@ The economic resources will be allocated to objective tasks for the creation and
 -	Construction and installation of the decks, auditoriums, cabins for the observation, enjoyment and stay of the **DGGUARDIANS** during their visits and stays in the GREEN ARK.
 -	Construction of a **NURSERY** – seedbed of native trees – essential to carry out the activities of **TREES PLANTING SESSIONS**.
 
-## 7.	How do I become a “DGGUARDIAN”.
+## 7.	¿How do I become a “DGGUARDIAN”?
 
 You just have to keep an eye on our community and buy your best NFT on the launch of the **“DGGUARDIAN”** collection launches with which you will show yourself to the **COMMUNITY** as a ***GREEN DIGITAL GUARDIAN OF THE GREEN ARKS OF PLANET EARTH***.
 
-## 8.	Benefits of becoming a “DGGUARDIAN”.
+## 8.	Benefits of becoming a “DGGUARDIAN”
 
 -	You will receive a unique and exclusive NFTs that will give you the mandate to become a **“DGGUARDIAN”**. 
 -	The Community of **“DGGUARDIANS”** can visit and enjoy the **GREEN ARK** in protection at the time they want it.
@@ -129,12 +128,9 @@ You just have to keep an eye on our community and buy your best NFT on the launc
 -	The Community of **“DGGUARDIANS”** will have preferential access and discount in the inscription of the **SPIRITUAL CAMPS**.
 -	You will receive a unique amulet made from the essence of the land you are protecting that will identify you as **“DGGUARDIAN”**. 
 
-## 9.	First "GREEN ARK” called the "The promised land" Property located in a country called Colombia, Antioquia Department, El Carmen de Viboral Municipality, Location Chaverras.
+## 9.	First ***"GREEN ARK”*** called the ***"The promised land"*** Property located in a country called Colombia, Antioquia Department, El Carmen de Viboral Municipality, Location Chaverras
 
 This **GREEN ARK** like most of the green lands and forests, they are located in areas far from the *“municipal or provincial”* urban centers. This property is located approximately twenty (20) kilometers from the urban center of the Municipality of Carmen de Viboral – Antioquia.
-
-   
-https://www.google.com/maps/place/5%C2%B059'17.8%22N+75%C2%B015'31.0%22W/@5.9879607,-75.2651206,1561m/data=!3m1!1e3!4m5 !3m4!1s0x0:0xa4d9cb615aa60142!8m2!3d5.9882843!4d-75.2586198?hl=es
 
 This property that we will protect **“DGGUARDIANS”** It has an approximate area of twenty (20) blocks or fifteen (15) hectares, surrounded by forests and native trees, streams with natural Jacuzzis, water springs, a great diversity of birds and birds; beautiful species of wild orchids.
 
@@ -185,7 +181,7 @@ Our intention is to consolidate the largest **COMMUNITY** on planet Earth called
 Regardless of which city in the world you are in, you will be able to watch over and defend the **"Promised land"** through an integrated system of surveillance and monitoring cameras, an alert and sound system, an alert system and protocols, and solutions that all members of the DGGUARDIANS COMMUNITY. 
 
 
-## 10.	Thank You Message from the “GREEN ARK - The Promised Land”
+## 10.	Thank You Message from the ***“GREEN ARK - The Promised Land”***
 **"The promised land":** Hello, I am the **"Promised Land or Green Ark"** that you are protecting and helping my conservation, although I have no voice to express myself, I do have all the energy of life and love to thank you, thank you, thank you for not forgetting me.
 
 With your help I will always be there for you to contemplate all my secrets and mysteries, nature is for you and you can visit us and enjoy us through the protection network ***“DGGUARDIANS”***.
